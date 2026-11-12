@@ -1,0 +1,2 @@
+# aurakasih
+mencoba 
